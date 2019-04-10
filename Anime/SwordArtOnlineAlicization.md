@@ -2,7 +2,7 @@
 
 > 英文名：Sword Art Online Alicization
 > 2018年10月7日 开播  
-> 观看地址：[刀剑神域 Alicization _ 番剧 _ bilibili _ 哔哩哔哩弹幕视频网](https://www.bilibili.com/bangumi/media/md130412)  
+> Video URL：[刀剑神域 Alicization _ 番剧 _ bilibili _ 哔哩哔哩弹幕视频网](https://www.bilibili.com/bangumi/media/md130412)  
 > 观看完成日期：2019年4月9日
 
 攒了好几周没有看，今天一口气从22集看到24集，很舒服。
